@@ -1,6 +1,6 @@
 # ʕ•ᴥ•ʔ < Hello!
 
- <font size="20"> &nbsp; &nbsp; ʕ •ᴥ•ʔ&nbsp;  &nbsp; < *Welcome to my github world!*
+ <font size="50"> &nbsp; &nbsp; ʕ •ᴥ•ʔ&nbsp;  &nbsp; < *Welcome to my github world!*
 
  ┏ʕ •ᴥ•ʔ┛ < I'm Tse-kai Chan, but I prefer to go by ***Kevin***. 
  
