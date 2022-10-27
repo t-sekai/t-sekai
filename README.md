@@ -6,4 +6,4 @@
  
  &nbsp; &nbsp; ʕ´•ᴥ•`ʔ &nbsp; &nbsp;< I'm currently a freshman and Regents Scholar at the ***UC San Diego***, studying ***Computer Science***. 
 
- &nbsp; &nbsp; ʕ≧ᴥ≦ʔ  &nbsp; &nbsp;< Here, you can explore in the ***t-sekai***.  :earth_asia:
+ &nbsp; &nbsp; ʕ≧ᴥ≦ʔ  &nbsp; &nbsp;< Here, you can explore the ***t-sekai***.  :earth_asia:
